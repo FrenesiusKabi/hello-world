@@ -1,2 +1,2 @@
 # hello-world
-Write a short description :)
+eyyyy doing git hub tutorial :): and trying to translate stuff on UnCiv, go check it out :D
